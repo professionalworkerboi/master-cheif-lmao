@@ -1,0 +1,1 @@
+maggie (amount of your choice) onions (1 per packet medium sized) peas and if want tomatoes
